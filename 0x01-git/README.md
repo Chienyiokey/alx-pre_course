@@ -1,1 +1,1 @@
-okey de mananger
+okey is not okey
